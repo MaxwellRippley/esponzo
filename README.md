@@ -1,3 +1,3 @@
 # esponzo
 esponzo is ready?
-Im maxwell Rippley Physics stident CU Denver
+Im maxwell Rippley Physics student CU Denver
